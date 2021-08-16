@@ -1,1 +1,2 @@
-# Bridgette-s-Resume-and-Portfolio
+# Bridgette Portfolio
+Welcome to my Career World
